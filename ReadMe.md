@@ -1,5 +1,5 @@
 # 💫 About Me:
-- Software Engineering 2/4
+- Software Engineering 3/4
 
 
 ## 🌐 Socials:
